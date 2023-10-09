@@ -5,7 +5,6 @@
 - 🤔 I’m looking for an internship
 - 💬 Ask me about **Techonology and Personnal Development**
 - 📫 How to reach me:**48982@etu.he2b.be**
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact:*I saw AIR FORCE ONE taxi and takeoff from the tarmac as i used to work at Brussels Airport*
 
 
